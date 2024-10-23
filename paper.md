@@ -12,3 +12,9 @@ I am finding this enjoyable.
 
 
 ## Need a cig and a beer 
+
+how don't you turn this thing on. 
+
+
+neither do i
+
